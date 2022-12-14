@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Manoj-1708
+- 👀 I’m interested in Web Developig And Airtificial Intelligence
+- 🌱 I’m currently learning B.Tech In Computer Science Engineering In Lovely Professional University
+- 📫 You Can Reach Me manojsiddu987@gmail.com
